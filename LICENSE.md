@@ -1,4 +1,4 @@
-#  
+#  my avatar automatic Scripts is the best my avatar Script, featuring no cooldown and teleport. Safe and powerful for all your needs.
 
 
 
